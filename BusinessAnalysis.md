@@ -4,7 +4,10 @@ If this compound was a company, there would be a few areas that any consulting c
 
 
 ⏩  *Situation :*
-our community individuals are expressing distressing emotions, stress, physical exhaustion, psychological overwhelm and even strong cynicism for some. 
+Day 28 of lockdown, with huge discrepancy in process commumicated, 
+As decribed by a 【local video】(<https://github.com/pepeette/ShanghaiLockdown2022/blob/main/mmexport1649734417668.mp4>) 
+from another compound,  
+our community of individuals are expressing distressing emotions, stress, physical exhaustion, psychological overwhelm and even strong cynicism for some. 
 > Those are **symptoms of burn out.**
 <br/>
 
