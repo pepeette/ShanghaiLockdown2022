@@ -1,15 +1,13 @@
-### ShanghaiLockdown2022
+# ShanghaiLockdown2022
 
-Our very "privileged" compound wechat group that is usually muted... 
-woke up to the Shanghai lockdown in march 15th.... 
-and people started to talk... residents started to openly challenge the lockdown... challenge the numbers... challenge the news.... 
+Our very "privileged" compound WeChat group, typically muted, awakened to the Shanghai lockdown on March 15th. Residents began to openly challenge the lockdown, question the numbers, and scrutinize the news.
 
-A government representative lady got invited to monitor / announce gov measure... she got called out and shut down after 10 days... 
+A government representative was invited to monitor and announce government measures but was called out and shut down after just 10 days.
 
-This analysis intends to showcase  
+## This Analysis Aims to Showcase:
 
-1. the open talks of privileged chinese residents on a tool famously censored by the government  
-2. the illusion of central information shared, monitored and censored  
-3. the vocabulary used in Chinese that belongs to war lexical field... 
+1. The open discussions among privileged Chinese residents on a platform famously censored by the government.
+2. The illusion of central information that is shared, monitored, and censored.
+3. The vocabulary used in Chinese that belongs to the lexical field of war.
 
-More to be analysed when out of the country
+More analysis will follow once I am out of the country.
