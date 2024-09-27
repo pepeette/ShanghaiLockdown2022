@@ -12,4 +12,4 @@ A government representative was invited to monitor and announce government measu
 
 More analysis will follow once I am out of the country.
 
-[!shanghailockdown](mmexport1649734417668.mp4)
+![shanghailockdown](mmexport1649734417668.mp4)
