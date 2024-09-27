@@ -11,3 +11,5 @@ A government representative was invited to monitor and announce government measu
 3. The vocabulary used in Chinese that belongs to the lexical field of war.
 
 More analysis will follow once I am out of the country.
+
+[!shanghailockdown](mmexport1649734417668.mp4)
